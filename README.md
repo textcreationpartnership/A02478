@@ -35,9 +35,89 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Of golds kingdome, and this vnhelping age Described in sundry poems intermixedly placed after certai
+
+1. A SPEECH INTENDED TO HAVE BENE MADE VNTO THE KINGS MAIESTIE, in the Towne of Windsore, but not spoken.
+
+1. TO THE RIGHT WOR'SHIPFVLL HIS very kind and curteous friend Edward Uaughan Esquire, Deputy Officer of the Office of the Pipe of the Kings Maiesties Eschequer.
+
+1. The Authors Prologue to such of his Poems in this booke as concerne Golds Kingdome.
+
 #####Body#####
-Of golds kingdome, and this vnhelping age Described in sundry poems intermixedly placed after certai
+
+1. HVMBLE PETITIONS OF GOOD SVBIECTS TO THEIR GOOD KING against the Parliament.
+
+1. The Subiects loue is the riches and safety of the King.
+
+1. A notable example of integrity in a King, betweene himselfe and his Subiects.
+
+1. Another notable example of integritie in a Prince.
+
+1. A Case of Difficultie in the Royall Administration.
+
+1. The infortunate Courtier.
+
+1. Three things very grieuous to good mindes.
+
+1. Of true Nobilitie.
+
+1. To the most reuerend and right Honourable, the Primate of all England.
+
+1. The Iudge must be truthes Patron.
+
+1. A Caueat to peremptory speaking Lawyers.
+
+1. To Astilius Regius the learned & highly imployed Lawyer.
+
+1. Of the most commendable and honourable gouernement of the City of London, in the late times of the sicknesse and decease of the most gracious and renowned Queene Elizabeth.
+
+1. No gold no goodnesse.
+
+1. The same of this vnhelpping Age.
+
+1. The same complaining of his want of friends.
+
+1. Droupe and die, Looke vp and liue.
+
+1. Answer.
+
+1. Trust to thy selfe and not to thy friends nor kinsfolkes.
+
+1. The dolorous man being still crossed in his estate bewaileth his mishaps.
+
+1. Of dissembling friends.
+
+1. A carefull Debtor.
+
+1. Of one neere dead through thought.
+
+1. The liberall mans Expostulation with Golde.
+
+1. The Golden Swaggerer.
+
+1. To all Worthy and well deseruing Souldiers.
+
+1. Though wit be the woer, Yet gold is the speeder.
+
+1. A Sale of Sinne.
+
+1. A Memoriall of the worthy and Right Worshipfull Gentleman, Richard Louelace, late of Hurley, in the County of Berke, Esquire, Liefetenant of the Castle and Forrest of Windsor.
+
+1. To a foule and common swearer.
+
+1. To a Common Lyer.
+
+1. To an olde man loosely liuing.
+
+1. A liuely description of Ingratitude by a Fable of a Serpent and a wayfaring man.
+
+1. Mediocria firma, with aduice to Constancie.
+
+1. A returne to Golde.
+
+1. To the Right VVorshipfull and of high deseruing Sir Iulius Caesar Knight, one of the Maisters of the Requests to the Kings Maiestie.
+
+1. The Author.
+
 **Types of content**
 
   * There are 1420 **verse** lines!
